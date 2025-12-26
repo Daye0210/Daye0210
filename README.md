@@ -1,4 +1,4 @@
-# 👋 Hola, soy Dayeza Merudia Calderon
+# 👋 Hola, soy Dayeza 
 
 🎓 Estudiante de **Ingeniería Informática** en la  
 🏫 **Universidad Mayor de San Simón (UMSS)** – Bolivia  
